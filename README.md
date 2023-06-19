@@ -19,7 +19,7 @@
 
 - 📫 How to reach me **kelompok9pengkodean@gmail.com**
 
-- 📄 Know about my experiences [https://www.youtube.com/@Kelompok9Pengkodean](https://www.youtube.com/@Kelompok9Pengkodean)
+- 📄 Link Youtube yang dibutuhkan [https://youtu.be/_BMRfuzpGys](https://youtu.be/_BMRfuzpGys)
 
 - ⚡ Fun fact **Pengkodean menyenangkan**
 
